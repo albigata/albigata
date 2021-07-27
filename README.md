@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @albigata
+- 👀 I’m interested in game develope.
+- 🌱 I’m graphic designer
